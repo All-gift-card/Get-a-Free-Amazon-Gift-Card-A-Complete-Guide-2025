@@ -3,7 +3,7 @@ Amazon gift cards are a fantastic way to shop for anything you need, from electr
 
 👇👇👇👇👇👇👇👇👇👇👇👇
 
- 👇👇 ✭ ⚡⚡ If you need a PSN Gift Card Code, you can click on this link.⚡⚡ ✭ 👇👇
+ 👇👇 ✭ ⚡⚡ If you need a Amazon Gift Card Code, you can click on this link.⚡⚡ ✭ 👇👇
 -----------------------------------------------------------------------------------------
 
 [✅▶️✅ Click Here To Get Now Fee Gift Card ✅◀️✅](https://lucky.topgiftcardusa.com/p3/ad2.html)
@@ -13,7 +13,7 @@ Amazon gift cards are a fantastic way to shop for anything you need, from electr
 
 👇👇👇👇👇👇👇👇👇👇👇👇
 
- 👇👇 ✭ ⚡⚡ If you need a PSN Gift Card Code, you can click on this link.⚡⚡ ✭ 👇👇
+ 👇👇 ✭ ⚡⚡ If you need a Amazon Gift Card Code, you can click on this link.⚡⚡ ✭ 👇👇
 -----------------------------------------------------------------------------------------
 
 [✅▶️✅ Click Here To Get Now Fee Gift Card ✅◀️✅](https://lucky.topgiftcardusa.com/p3/ad2.html)
